@@ -2,4 +2,4 @@
 
 ### BeCaUsE iF yOuR cOmMiT hIsToRy IsN't CoMpLeTeLy GrEeN yOuR nOt A rEaL pRoGrAmMeR
 
-# Days of lying about my productivity [10]
+# Days of lying about my productivity [1]]
